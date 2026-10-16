@@ -1,0 +1,2 @@
+# premium-text-block-prep-001-text-block-prep-signature-fo
+Are you tired of tedious text block preparation and struggling to create a unique signature fold for your crafts? The Text Block Prep &amp; Signature Fold Craft Workshop is here to simplify your workflow.  This Notion template is designed to streamline your text block prep and signature fold creation, saving you time and effort. With its intuitive layo
